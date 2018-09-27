@@ -1,0 +1,16 @@
+# A Left Foreign Policy 
+
+- [Toward a Neo-Progressive Foreign Policy: A Case for an Internationalist Left](https://www.foreignaffairs.com/articles/united-states/2018-09-04/toward-neo-progressive-foreign-policy?cid=int-fls&pgtype=hpg)
+- [What Does Alexandria Ocasio-Cortez Think About the South China Sea?: The rising left needs more foreign policy. Here’s how it can start.](https://www.nytimes.com/2018/09/17/opinion/democratic-party-cortez-foreign-policy.html)
+- [Rethinking the Battlefield: The World Has Changed. It's Time for the U.S. Foreign Affairs Budget to Keep Up.](https://www.murphy.senate.gov/rethinking-the-battlefield)
+- [Securing a Democratic World: The Case for a Democratic Values-Based U.S. Foreign Policy](https://www.americanprogress.org/issues/security/reports/2018/09/05/457451/securing-democratic-world/)
+- [Socialists and Libertarians Need an Alliance Against the Establishment](https://foreignpolicy.com/2018/09/24/socialists-and-libertarians-need-an-alliance-against-the-establishment/)
+- [A World Imagined: Nostalgia and Liberal Order](https://www.cato.org/publications/policy-analysis/world-imagined-nostalgia-liberal-order)
+- [The Left's Missing Foreign Policy](https://nplusonemag.com/online-only/online-only/the-lefts-missing-foreign-policy/)
+- [How Progressives Can Engage Russia: America’s security depends on defeating oligarchy abroad and at home.](https://www.thenation.com/article/how-progressives-should-think-about-russia/)
+- [The U.S. Debt to Syria](http://bostonreview.net/war-security/asli-u-bali-aziz-rana-us-debt-syria)
+- [Where Is the Left Wing’s Foreign Policy?](https://newrepublic.com/article/150317/left-wings-foreign-policy)
+- [Progressives must seize their momentum to articulate a saner foreign policy](https://www.washingtonpost.com/opinions/progressives-must-seize-their-momentum-to-articulate-a-saner-foreign-policy/2018/09/25/d65799a8-c017-11e8-9005-5104e9616c21_story.html?noredirect=on&utm_term=.d983a2a28319)
+- [A Bold Foreign Policy Platform for the New Wave of Left Lawmakers](http://inthesetimes.com/features/left_progressive_foreign_policy_platform_russia_china_middle_east.html)
+- [America Needs an Entirely New Foreign Policy for the Trump Age](https://www.theatlantic.com/ideas/archive/2018/09/shield-of-the-republic-a-democratic-foreign-policy-for-the-trump-age/570010/)
+- [Old Rivals, New Allies](https://home.isi.org/old-rivals-new-allies)

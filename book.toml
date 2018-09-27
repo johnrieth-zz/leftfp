@@ -1,0 +1,12 @@
+[book]
+authors = ["John Rieth"]
+multilingual = false
+src = "src"
+title = "Progressive Foreign Policies"
+description = "A book exploring progressive foreign policies"
+
+[output.html]
+additional-css = ["add.css"]
+
+[output.html.search]
+enable = true
