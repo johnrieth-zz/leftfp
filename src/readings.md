@@ -1,4 +1,4 @@
-# A Left Foreign Policy 
+# Need for a Left Foreign Policy
 
 - [Toward a Neo-Progressive Foreign Policy: A Case for an Internationalist Left](https://www.foreignaffairs.com/articles/united-states/2018-09-04/toward-neo-progressive-foreign-policy?cid=int-fls&pgtype=hpg)
 - [What Does Alexandria Ocasio-Cortez Think About the South China Sea?: The rising left needs more foreign policy. Here’s how it can start.](https://www.nytimes.com/2018/09/17/opinion/democratic-party-cortez-foreign-policy.html)
